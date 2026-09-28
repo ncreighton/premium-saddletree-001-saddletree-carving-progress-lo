@@ -1,0 +1,2 @@
+# premium-saddletree-001-saddletree-carving-progress-lo
+Every saddletree you carve is a one-of-a-kind sculpture—but without a dedicated progress log, you're losing the story of each chisel stroke, each grain reveal, and each technique that made it perfect.  The Saddletree Carving Progress Log is the only Notion template built specifically for saddletree artisans. It replaces scattered notebooks and ment
